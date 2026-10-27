@@ -10,7 +10,7 @@
  </p>
  <p align="center"> ⭑𓂃 hiya! please read my strawpage before interacting <3 </p>
 
- <p align="center">⭑𓂃 himiko/nejire ⟡ she/he ⟡ 15 :3 ⟡ australian  </p>
+ <p align="center">⭑𓂃 himiko/nejire ⟡ she/he ⟡ 16 :3 ⟡ australian  </p>
  <p align="center">  ⭑𓂃 im supa shy so sorry if i ignore u  </p>
 
 
